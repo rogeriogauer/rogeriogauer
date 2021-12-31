@@ -17,4 +17,4 @@ Nas raras horas vagas, gosto de ouvir músicas.
 Meus contatos:
 - Whatsapp: 55 51 997306890
 - Email: rogerio.gauer.br@gmail.com
-- Linkedin: https://www.linkedin.com/in/rog%C3%A9rio-gauer-21221b8b
+- Linkedin: www.linkedin.com/in/rogeriogauer
